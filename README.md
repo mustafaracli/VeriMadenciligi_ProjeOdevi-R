@@ -1,0 +1,1 @@
+# VeriMadenciligi_ProjeOdevi-R
